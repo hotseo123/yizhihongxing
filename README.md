@@ -2,6 +2,8 @@
 
 - 官网地址：[https://order.yizhihongxing.club/](https://order.yizhihongxing.club/aff.php?aff=17788)
 
+- 优惠码：`11meigui` 全场9折，长期有效
+
 ## 一、一枝红杏加速器机场优惠活动
 
 一枝红杏加速器是一个老牌的机场服务商，已成立超过5年时间。
